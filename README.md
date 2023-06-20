@@ -1,2 +1,0 @@
-# LuckPerms
-luckperms reheheheha
